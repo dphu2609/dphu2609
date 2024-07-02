@@ -1,6 +1,6 @@
 #  About Me :
 👋 Hello there! I am **Le Duc Phu**, currently a junior at the VNUHCM - University of Science.
-📘 You can contact me at leducphu.work@gmail.com or on LinkedIn as **Phu-Duc Le**. <br/>
+📘 You can contact me at leducphu.work@gmail.com or on LinkedIn as [**Phu-Duc Le**](https://www.linkedin.com/in/ducphu269/).
 
 # 🌐 Social Media
 <a href="https://www.facebook.com/LeDucPhu537/">
